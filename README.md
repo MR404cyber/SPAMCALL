@@ -1,2 +1,0 @@
-# SPAMCALL
-HACKER
